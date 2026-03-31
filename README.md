@@ -10,16 +10,29 @@
 <p align="center">
 <img width="735" height="488" alt="1000025014" src="https://github.com/user-attachments/assets/f2649f7a-82f1-4e90-87b1-ef4ac1fe6a5b" />
 
+<p align="center">
+!check out my straw/rentry/whatever-- wip!
 
+<p align="center">
+<br>
+<br> 
+⇓
 
-Here are some ideas to get you started:
+<br>
+<br>
+"web"
+<br>
+<br>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+🌸˚˖⋆
+<br>
+<br>
+  
+<p align="center">
+🌸˚˖⋆
+<br>
+<br>
+  
+<p align="center">
+🌸˚˖⋆
