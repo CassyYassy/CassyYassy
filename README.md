@@ -1,6 +1,7 @@
                                                       ︶𓊆 ʜᴇʟʟᴏ ᴛʜᴇʀᴇ 𓊇︶
 
-    <img width="735" height="488" alt="1000025012" src="https://github.com/user-attachments/assets/29cfa623-9f31-4d96-9089-0e35a626b455" />
+
+<img width="735" height="488" alt="1000025012" src="https://github.com/user-attachments/assets/29cfa623-9f31-4d96-9089-0e35a626b455" />
 ## wippp
 
 <!--
