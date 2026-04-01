@@ -39,7 +39,15 @@
 🌸˚˖⋆
 <br>
 <br>
+
+
 <p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31f2he2ifcisis3omaoy5ypb6rae&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31f2he2ifcisis3omaoy5ypb6rae&cover_image=true&theme=novatorem&show_offline=false&background_color=ffdbf7&interchange=true&profanity=false&bar_color=d760a5&bar_color_cover=false">
+  </a>
+</p>
+<br>
+<br>
 
 <p align="center">
 ︶𓊆 !ᴱᴺᴰ! 𓊇︶
