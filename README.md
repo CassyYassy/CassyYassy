@@ -42,6 +42,4 @@
 <p align="center">
 
 <p align="center">
-
-  
 ︶𓊆 !ᴱᴺᴰ! 𓊇︶
