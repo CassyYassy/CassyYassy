@@ -56,7 +56,7 @@
 ︶⊹︶︶⠀୨୧⠀︶︶⊹︶‎
 
 <p align="center">
-<img width="735" height="488" alt="1000025014" src="https://github.com/user-attachments/assets/f2649f7a-82f1-4e90-87b1-ef4ac1fe6a5b" />
+<img width="736" height="736" alt="1000025024" src="https://github.com/user-attachments/assets/4738d88e-a737-486c-9007-59263bd4f408" />
 
 
 <p align="center">
